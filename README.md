@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ilakiya03
-- 👀 I’m interested in learning music 
-- 🌱 I’m currently learning BCA 2d year
+- 👀 I’m interested in
+- 🌱 I’m currently learn
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..
 
